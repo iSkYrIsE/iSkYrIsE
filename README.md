@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @iSkYrIsE
-- 👀 I’m interested in programming learning
+- 👀 I’m interested in learning programming
 - 🌱 I’m currently studying IT+ADET
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me marcgomezdequero99@gmail.com
