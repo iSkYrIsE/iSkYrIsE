@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iSkYrIsE
 - 👀 I’m interested in Software, Research and Design
-- 🌱 I’m finished my degree in Computer Science
+- 🌱 I finished my degree in Computer Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me marcgomezdequero99@gmail.com
 
